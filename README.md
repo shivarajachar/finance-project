@@ -1,2 +1,2 @@
 # finance-project
-trendytech git one
+trendytech git one my dear macho man
